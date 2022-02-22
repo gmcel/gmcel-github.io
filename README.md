@@ -2,7 +2,7 @@
 
 
 From action, to horror, to sci-fi, there are a lot of genres of movies to watch and enjoy.
-Having a hard time finding a movie to watch? Try our top 5 suggestion which focuses about romance:
+Having a hard time finding a movie to watch? Try our top 5 suggestion that focuses about romance:
 
 
 # 1. Flipped
