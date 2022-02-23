@@ -7,7 +7,7 @@ Having a hard time finding a movie to watch? Try our top 5 suggestion which focu
 
 **1. Flipped**
 
-![Boy wonder from Down Under](https://user-images.githubusercontent.com/100073912/155246598-bfe81a92-0440-433b-92a1-f3df15743288.jpg)
+![alt text](https://user-images.githubusercontent.com/100073912/155246598-bfe81a92-0440-433b-92a1-f3df15743288.jpg)
 
 When they meet in second grade, Juli Baker falls instantly in love with her neighbor, Bryce Loski. Bryce, however, does not feel the spark. From that day forward, he (Callan McAuliffe) tries hard to keep brash and unpredictable Juli (Madeline Carroll) at bay. After six years, she begins to feel that she was wrong about him being the love of her life. Unfortunately, that is just about the time that Bryce begins to think he was wrong about Juli, too.
 
@@ -40,4 +40,5 @@ In 1940s South Carolina, mill worker Noah Calhoun (Ryan Gosling) and rich girl A
 Seventeen-year-old Stella spends most of her time in the hospital as a cystic fibrosis patient. Her life is full of routines, boundaries and self-control -- all of which get put to the test when she meets Will, an impossibly charming teen who has the same illness. There's an instant flirtation, though restrictions dictate that they must maintain a safe distance between them. As their connection intensifies, so does the temptation to throw the rules out the window and embrace that attraction.
 
 
-The final element.
+
+Those are the Top 5 movies we recommend you to watch. Want more movies of other genres? Stay tuned and follow my Instagram! 
