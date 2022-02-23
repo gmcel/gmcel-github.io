@@ -8,7 +8,7 @@ Having a hard time finding a movie to watch? Try our top 5 suggestion which focu
 
 **1. Flipped**
 
-![Boy wonder from Down Under](https://user-images.githubusercontent.com/100073912/155252895-ac1f71cf-ecb8-4b11-8ddd-0ccc0a2f5a9e-small.jpg)
+![Boy wonder from Down Under](https://user-images.githubusercontent.com/100073912/155253970-7efdbce8-d3e2-4478-8394-de464461ebe5.jpg)
 
 When they meet in second grade, Juli Baker falls instantly in love with her neighbor, Bryce Loski. Bryce, however, does not feel the spark. From that day forward, he (Callan McAuliffe) tries hard to keep brash and unpredictable Juli (Madeline Carroll) at bay. After six years, she begins to feel that she was wrong about him being the love of her life. Unfortunately, that is just about the time that Bryce begins to think he was wrong about Juli, too.
 
